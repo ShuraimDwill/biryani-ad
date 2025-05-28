@@ -1,1 +1,1 @@
-check this https://shuraimdwill.github.io/chinese-menu/
+check this https://shuraimdwill.github.io/biryani-ad/
